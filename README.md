@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @yuevan10284 and I am currently a sophmore Biochemistry student.
-- 👀 I’m interested in building startups
 - 🌱 I’m currently learning to make a website. 
 - 💞️ I’m looking to collaborate on making a subscription based website. 
 - 📫 How to reach me: Text me at 4087020902 !
